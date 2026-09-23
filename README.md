@@ -1,3 +1,2 @@
-<img width="348" height="347" alt="IMG_4772" src="https://github.com/user-attachments/assets/f4596079-3c37-441d-9705-0963957e4cfc" />
+<img width="1280" height="879" alt="11_12a" src="https://github.com/user-attachments/assets/abeafba1-6a80-4aee-97b4-e815c7c8f8a1" />
 
-im ocicat and i go by he / him
